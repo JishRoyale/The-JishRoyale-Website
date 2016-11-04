@@ -1,1 +1,1 @@
-# The-Jish-Royal-Website
+# The-JishRoyale-Website
